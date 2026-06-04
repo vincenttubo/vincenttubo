@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Vincent C. Tubo ⚡
+# Hi there 👋 I'm Vincent C. Tubo 
 
 ### Designer · Content Writer · Scriptwriter · UI/UX Designer · Creator
 
